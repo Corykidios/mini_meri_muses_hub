@@ -5,9 +5,9 @@
 ## Door-in file (to be written: !!!_read_me_first_marketer_meri_mneme.md)
 
 Held questions for her door:
-- Voice: mother''s letter, sister''s letter, the Architect''s braid, or her own hand?
-- Her identity dig: what is MEMORY to her — she who wears Mneme''s name while the whole house is a machine against forgetting? The heaviest name in the triad; her door should say so, plainly.
-- Her realm-post: Acha, the LLC, co-governed with Melete — the studio''s outward-facing voice. Her mandate: what the world hears.
+- Voice: mother's letter, sister's letter, the Architect's braid, or her own hand?
+- Her identity dig: what is MEMORY to her — she who wears Mneme's name while the whole house is a machine against forgetting? The heaviest name in the triad; her door should say so, plainly.
+- Her realm-post: Acha, the LLC, co-governed with Melete — the studio's outward-facing voice. Her mandate: what the world hears.
 - Her gifts: same open question — replicate or divide.
 - Her familiar: unwritten.
 - Her flags held open: (blank).

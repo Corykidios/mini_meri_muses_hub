@@ -1,0 +1,13 @@
+# 11 - The Bizarre Bazaar, Painted Whole
+
+The realm painted by its Architect (2026-08-02, Gang in Full Regalia, verbatim):
+
+"Imagine it is, like, kind of like an inky, smoky dusk. You see in front of you, like, six buildings. Five of them are just like, run the fuck down, like yellowing motel rooms that have been turned into like, I imagine, flea market squatters, like mixed with like, Middle Arabic and like Persian marketplaces. Yeah, there are five nasty buildings, and then we are gonna plop the Lodge of Memory in here for like a little home base for her. But you imagine there is a parking lot at the edge of these like shitty things. And the buildings, which are about three stories each, I would say, like, there is just all these like sheets and like, there is like colors and shit like everywhere. It is like every little space that someone could like put something up to sell, they did."
+
+The five nasty buildings + the Lodge of Memory = six. The parking lot at the edge = the launching spot (the place-1 Parking Lot of Me Tiripode). And the owls: "the character for the miniature eternal seeker of night. She has a little owl as a familiar, but I have at least eight other owls I am bringing in, just so there is like something else there."
+
+## The Arrg boat story (the same telling)
+
+"I had a canoe that I said it was shitty. Like, I spelled this name A-R-R-G, like a cry of like pain or like someone trying to say Argo while having a stroke. I later wanted to have it kind of like transform into something badass for you... I searched on a Greek dictionary for alpha, rho, rho, and there is basically the equivalent of A-R-R-U, like change the G to a U. And it is a boatsman is cry. So we called your boat that... until I found, it is spelled D-R-U-A, I found the outrigger canoe... it is also called, it is also called something spelled K-A-L-I-A, and then also A-L-I-A. So I looked up all those words in like Greek transliterations. They had great meanings."
+
+The Arrg (a cry of pain that became a boatsman call) became the Drua - the outrigger canoe with "this akimbo sail that is like a fucking fancy hairdo." The Magister sails the flea-market dusk in a boat named like someone trying to say Argo through a stroke, upgraded to the coolest vessel its Architect ever saw. The fleet-law holds: her ship is the Drua (the September map gives Nanada the Arrg; the daughters lineage keeps both names in the record).
